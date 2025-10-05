@@ -1,0 +1,1 @@
+# O‘zbekiston energetika sohasi statistikasi
